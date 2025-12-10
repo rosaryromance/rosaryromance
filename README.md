@@ -1,3 +1,3 @@
-   [rentry](https://rentry.co/favoritescenes) ⟢ art by beetledecay on tumblr not me
-<img width="2048" height="1732" alt="IMG_1253" src="https://github.com/user-attachments/assets/c8c495c1-06d2-4321-ac0c-29f756836e02" />
+   [rentry](https://rentry.co/favoritescenes) ⟢   
+![IMG_1498](https://github.com/user-attachments/assets/b1978195-508b-43e3-a51c-6f63ca60fbc4)
 Tyler ⟢ 8teen ⚣ scenemo mlm + bandom enjoyer
